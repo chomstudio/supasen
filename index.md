@@ -9,7 +9,7 @@
 - 結構うろ覚えで書いてます。間違っていたり情報が古かったりしてもご容赦を。
 
 ---
-## ◆2020-11-19 千葉市・海浜幕張 [JFA夢フィールド 幕張温泉 湯楽の里](https://www.yurakirari.com/makuhari/)
+## ◆2021-1-21 千葉市・海浜幕張 [JFA夢フィールド 幕張温泉 湯楽の里](https://www.yurakirari.com/makuhari/)
 ![](https://pbs.twimg.com/media/EsN5fTDUYAEgB2A?format=jpg&name=large)
 
 ### 【おすすめ度】☆5/5
